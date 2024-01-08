@@ -1,4 +1,4 @@
-
+⭐⭐⭐---------------------------------------->
 It seems like there might be a slight typo in your question, as the typical game you're referring to is "Rock, Paper, Scissors," not "Rock, Paper, Cessior." Assuming you are asking about "Rock, Paper, Scissors," here's a description of the game techniques:
 
 "Rock, Paper, Scissors" is a simple hand game usually played between two people. Each player simultaneously forms one of three shapes with an outstretched hand:
